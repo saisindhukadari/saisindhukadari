@@ -1,4 +1,4 @@
-# Hi there, I'm Sai Sindhu Kadari 👋
+# Hi there, I'm Kadari Sai Sindhu 👋
 
 🚀 Aspiring Java Full Stack Developer | AI-Driven Web Applications | Problem Solver
 
